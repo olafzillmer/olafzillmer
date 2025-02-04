@@ -14,3 +14,14 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+Often found around community initiatives and open-source projects
+
+
+
+💬 Get in touch:
+
+[![LinkedIn](https://www.linkedin.com/in/olaf-zillmer-045a46137?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)]
+
+https://www.linkedin.com/in/olaf-zillmer-045a46137?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app
